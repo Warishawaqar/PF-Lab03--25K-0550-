@@ -16,6 +16,8 @@ I also love to learn about the theoretical concepts of computer science.
  Need to cover all topics in Islamiat for the midterm
  Need to complete motion in 1D/2D
  Need to complete the limits chapter + questions
+
+ 
  ***When you make some decisions in life, your afterlife becomes a consequence of them.***
  
  
